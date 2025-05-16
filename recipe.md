@@ -7,6 +7,7 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 1/2 tsp ground cinnamon
+- handful of chocolate chunks
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
